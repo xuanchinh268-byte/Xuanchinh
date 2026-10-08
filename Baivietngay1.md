@@ -16,7 +16,7 @@ Chúng tôi có gì?
  
 ✅ Cám lợn: 660+ (G200), 685Plus (102Plus), 665F, 667F (nái chửa), 668 (nái nuôi con)
 ✅ Cám gà: 551, 552, 554 — đúng từng giai đoạn phát triển
-✅ Cám vịt thịt: 331F(1-21ng tuổi) — ổn định đường ruột,nhanh lớn,hiệu quả kinh tế cao. 332F(từ 22ng -xuất chuồng)vịt,ngan tăng trọng nhanh,Fcr thấp,
+✅ Cám vịt thịt: 331F(1-21ng tuổi) — ổn định đường ruột,nhanh lớn,hiệu quả kinh tế cao. 332F(từ 22ng -xuất chuồng)vịt,ngan tăng trọng nhanh,Fcr thấp.
  
 Tại sao chọn Xuân Chính?
  
